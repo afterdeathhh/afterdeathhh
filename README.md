@@ -1,4 +1,4 @@
-[https://github.com/afterdeathhh/afterdeathhh]
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=afterdeathhh)
 
 
 
