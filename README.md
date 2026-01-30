@@ -1,5 +1,3 @@
-<img width="500" height="62" alt="picmix com_2722345" src="https://github.com/user-attachments/assets/de3d0f6a-d5a0-4111-950a-4fcdd539f680" /><img width="500" height="62" alt="picmix com_2722345" src="https://github.com/user-attachments/assets/21570f15-2b67-4152-b76f-df627ebfa4e0" />
-
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=afterdeathhh)
 
