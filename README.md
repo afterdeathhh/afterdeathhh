@@ -1,4 +1,4 @@
-<img width="500" height="93" alt="picmix com_2006939" src="https://github.com/user-attachments/assets/281e68ed-d490-46bd-81e4-691e48212328" /><img width="500" height="93" alt="picmix com_2006939" src="https://github.com/user-attachments/assets/7ea76d25-edcc-4d57-ad31-2f6e8b0613c7" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="93" alt="picmix com_2006939" src="https://github.com/user-attachments/assets/281e68ed-d490-46bd-81e4-691e48212328" />
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=afterdeathhh)
