@@ -8,7 +8,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![picmix com_2787082](https://github.com/user-attachments/assets/2fbd63f4-fac1-4c5d-a620-f401a536487f)![338881604-9daf630c-bba2-41f4-afa2-971780e1fe4f](https://github.com/user-attachments/assets/74a65d15-6167-4df6-858a-72e46d8289db)![picmix com_2595619](https://github.com/user-attachments/assets/ee1feefe-e0d6-4996-adb8-da6e2c21851d)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![picmix com_2787082](https://github.com/user-attachments/assets/2fbd63f4-fac1-4c5d-a620-f401a536487f)![338881604-9daf630c-bba2-41f4-afa2-971780e1fe4f](https://github.com/user-attachments/assets/74a65d15-6167-4df6-858a-72e46d8289db)![picmix com_2595619](https://github.com/user-attachments/assets/ee1feefe-e0d6-4996-adb8-da6e2c21851d)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝘪'𝘮 𝘯𝘰𝘵 𝘷𝘦𝘳𝘺 𝘴𝘰𝘤𝘪𝘢𝘣𝘭𝘦, 𝘣𝘶𝘵 𝘪𝘧 𝘶 𝘸𝘢𝘯𝘵 𝘪𝘯𝘵 - 𝘸𝘳𝘪𝘵𝘦 𝘪𝘯 𝘸𝘩𝘪𝘴𝘱𝘦𝘳, 𝘤+𝘩 𝘶𝘳 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 ![picmix com_2686061](https://github.com/user-attachments/assets/6cd9dbbf-287d-4a1b-b0d8-9c91b45326eb)
         
