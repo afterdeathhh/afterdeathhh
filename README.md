@@ -1,9 +1,7 @@
 <img width="1280" height="158" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f32393963333064333865633438633761653162306463613838323161633032392f663535613365333333366131366664302d64312f733132383078313932302f376234643366633062643333373333" src="https://github.com/user-attachments/assets/839abc09-2cfd-4ad9-b9e3-f37de136c49e" />
 
 
-⠀⠀⠀⠀  ![picmix com_1158957](https://github.com/user-attachments/assets/a9ba5698-8fd3-47e8-9128-dfceae518674)![picmix com_1017645](https://github.com/user-attachments/assets/98eb3045-2de4-4b31-9adc-0010bc6a96a0) ⠀            ![picmix com_1017645](https://github.com/user-attachments/assets/3f9c172a-66a0-4f09-940e-a1caa2d6268d)![picmix com_1158957](https://github.com/user-attachments/assets/74c79fd7-67ff-4f54-bae8-afb12b2d1af9)
-
-
+⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀       ![](https://komarev.com/ghpvc/?username=afterdeathhh&color=lightgrey&label=<3 )
 
 
